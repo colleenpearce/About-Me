@@ -9,7 +9,7 @@ I'm currently researching the impacts of social environment on the gut microbiot
 
 ## Research Experience
 - Master's Student in the MAP Lab at Queen's University: September 2022 - present
-- Research Assistant(Map Lab, Queen's University): May 2022 - August 2022
+- Research Assistant (MAP Lab, Queen's University): May 2022 - August 2022
 - Thesis Student (Queen's University): September 2021 - May 2022
 - Directed Lab Student (Queen's University): September 2021 - May 2022
 
